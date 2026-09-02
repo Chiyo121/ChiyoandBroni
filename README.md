@@ -1,2 +1,2 @@
-# ChiyoandBroni
-Calysta Helen Setiawan
+Calysta
+Hobi saya Travelling.
